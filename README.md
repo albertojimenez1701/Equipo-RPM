@@ -1,2 +1,0 @@
-# Equipo-RPM
-# Equipo-RPM
